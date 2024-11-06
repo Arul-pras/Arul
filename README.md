@@ -1,2 +1,0 @@
-# Arul
-Sebagian dari perjalanan
